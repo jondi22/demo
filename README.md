@@ -1,1 +1,1 @@
-i'm sexy and i know it and i know and i know 
+life is hard لكن جميلة 
